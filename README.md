@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently a student<br>keen on learning cyber security<br>i like to explore and that has led to me making amazing projects
+I am currently a student<br>Keen on learning cyber security<br>i like to explore and that has led to me making amazing projects
 
 
 ## 🌐 Socials:
